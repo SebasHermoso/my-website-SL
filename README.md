@@ -1,1 +1,1 @@
-Este es un proyecto donde deseo y quiero mostrar mis habilidades como desarrollador y mejora en el mundo laboral
+Este proyecto es una oportunidad para demostrar mis habilidades como desarrollador y seguir creciendo en el mundo laboral.
